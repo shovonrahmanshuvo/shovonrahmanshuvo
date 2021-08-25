@@ -1,7 +1,8 @@
-### Hi there 👋
+### Hello from the other side!!! 👋
 
 
-
+- 🏠 Bangladesh 🇧🇩
+- 🛏️ Japan 🇯🇵 🗻
 
 - 🔭 I’m currently working on ...
 - 🌱 I’m currently learning ...
